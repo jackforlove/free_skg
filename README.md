@@ -6,17 +6,13 @@ ps:
 2，链接可能过一段时间失效，本项目会一直维护，定期更新新并删除失效的社工库，关注即可！
 3，序号不代表推荐，仅为统计排序。
 
-2023最新可用：
-
 0，https://t.me/sgk2023_03_30bot?start=SGK_W704OR4L
 
 1，https://t.me/Freeshegongku_bot?start=5727615549cx2xjo
 
 2，https://t.me/SGKmainNEWbot?start=IVT155647A3D
 
-3，https://t.me/zhihu_bot?start=5727615549e8vzxh
-
-4，https://t.me/CIASGKbot?start=dd6f8c70f1
+3，t.me/zhihu_bot?start=ZHIHU_JTVYLDWX
 
 7，https://t.me/DATA_007bot?start=5e39ce5f68
 
@@ -24,13 +20,26 @@ ps:
 
 9，https://t.me/AJL01_bot?start=OLrgLHYKFo
 
-10，https://t.me/LuoRiSGKbot?start=m4CThx5lTt
+10，https://t.me/aishegongkubot?start=AISGK_CJRT2QO9
 
-11，https://t.me/MI6SGK_bot?start=MyPCWofueJ
+11，https://t.me/XingDun2Bot?start=cp9Dz1G
 
-12,https://t.me/BabyBus_2023_bot?start=7bc9a9de06b4696
+12，https://t.me/huhu_sgk_bot?start=5727615549
 
-13，t.me/GoogleSGKbot?start=mruxhqkye
+13，https://t.me/DeepWebSGK_bot?start=Eo3bQv0IUH38
+
+14，https://t.me/sgkvipbot?start=vip_1082281
 
 
 持续更新。。。。
+
+【推荐项目】流量卡cps分销！一张卡佣金200+！轻松睡后月入5位数！
+https://hk.yunhaoka.cn/#/pages/public/register?code=03925871
+
+更多免费资源，互联网搞钱项目欢迎关注公众号《刻骨轻创》
+
+免费零撸羊毛Q群:456796559
+
+刻骨轻创免费项目资源分享Q群：569789779
+
+
