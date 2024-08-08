@@ -17,7 +17,7 @@ ps:
 
 2，https://t.me/SGKmainNEWbot?start=IVT155647A3D
 
-3，t.me/zhihu_bot?start=ZHIHU_JTVYLDWX
+3，https://t.me/zhihu_bot?start=ZHIHU_JTVYLDWX
 
 7，https://t.me/DATA_007bot?start=5e39ce5f68
 
