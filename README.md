@@ -2,9 +2,14 @@
 最新优质免费社工库分享（定期更新）
 
 ps:
+
 1，以下社工库为最新可用免费的，单个社工库能力有限，如果查不到信息，建议多加几个。
+
 2，链接可能过一段时间失效，本项目会一直维护，定期更新新并删除失效的社工库，关注即可！
+
 3，序号不代表推荐，仅为统计排序。
+
+4，最新社工库资源以及其他白嫖免费资源关注电报群：https://t.me/keguqingchuang
 
 0，https://t.me/sgk2023_03_30bot?start=SGK_W704OR4L
 
@@ -34,7 +39,10 @@ ps:
 持续更新。。。。
 
 【推荐项目】流量卡cps分销！一张卡佣金200+！轻松睡后月入5位数！
-https://hk.yunhaoka.cn/#/pages/public/register?code=03925871
+![Image_1723090583345](https://github.com/user-attachments/assets/6605ef6a-aa7c-487e-b828-d902a36a0a92)
+![IMG_20240808_122221](https://github.com/user-attachments/assets/2a416bf2-0a4f-4cb2-adc3-c322d5bd2224)
+![688077(1)](https://github.com/user-attachments/assets/5a427fde-569e-4cb2-acab-c5a23a275b25)
+
 
 更多免费资源，互联网搞钱项目欢迎关注:
 
