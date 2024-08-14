@@ -9,7 +9,7 @@ ps:
 
 3，序号不代表推荐，仅为统计排序。
 
-4，最新社工库资源以及其他白嫖免费资源关注电报群：https://t.me/keguqingchuang
+4，最新社工库资源以及其他白嫖免费资源关注电报频道：https://t.me/+Bm4hdjtQx7ZmMzNl
 
 0，https://t.me/sgk2023_03_30bot?start=SGK_W704OR4L
 
@@ -34,6 +34,10 @@ ps:
 13，https://t.me/DeepWebSGK_bot?start=Eo3bQv0IUH38
 
 14，https://t.me/sgkvipbot?start=vip_1082281
+
+15，https://t.me/SGKX_BBOT?start=zCDwvV0qALKa
+
+16，
 
 
 持续更新。。。。
