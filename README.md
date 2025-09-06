@@ -11,33 +11,43 @@ ps:
 
 4，最新社工库资源以及其他白嫖免费资源关注电报频道：https://t.me/+Bm4hdjtQx7ZmMzNl
 
-0，https://t.me/sgk2023_03_30bot?start=SGK_W704OR4L
-
-1，https://t.me/Freeshegongku_bot?start=5727615549cx2xjo
-
-2，https://t.me/SGKmainNEWbot?start=IVT155647A3D
+0，https://t.me/Freeshegongku_bot?start=5727615549cx2xjo
 
 3，https://t.me/zhihu_bot?start=ZHIHU_JTVYLDWX
 
 8，https://t.me/yuehanbot?start=572761554999d9b
 
-9，https://t.me/AJL01_bot?start=OLrgLHYKFo
-
-10，https://t.me/aishegongkubot?start=AISGK_CJRT2QO9
-
-13，https://t.me/DeepWebSGK_bot?start=Eo3bQv0IUH38
+9，https://t.me/AJL01_bot?start=5727615549
 
 14，https://t.me/sgkvipbot?start=vip_1082281
 
-15，https://t.me/SGKX_BBOT?start=zCDwvV0qALKa
-
-16，https://t.me/tianwangchadangTop0_bot?start=NTcyNzYxNTU0OQ==
+15，https://t.me/AEON_SGKBOT?start=2UT6FAZWHKC24TM4
 
 17，https://t.me/XingDun6Bot?start=cp9Dz1G
 
-18，https://t.me/a_tea_pot_bot?start=5727615549
+18, https://t.me/xuehuaaabot?start=TYQYXPTTSA
 
-19，https://t.me/XY_SGKBOT?start=UFPJroMv9G
+21, https://t.me/COCOsgkbot?start=TYQYXPTTSA
+
+22. https://t.me/dfsgk1bot?start=97aef9ba
+
+23. https://t.me/Xray_Sgk_bot?start=TYQYXPTTSA
+
+24. https://t.me/SGK00
+
+25. https://t.me/TianQiSGK_bot?start=TianQi_12995
+
+26. https://t.me/TaoBaoSGKBot?start=4MthuF
+
+27. https://t.me/MiJingHYbot?start=97aef9ba
+
+28. https://t.me/gougou66_bot?start=2LvXBr
+
+29. https://t.me/BianSGbot?start=5727615549
+
+30. https://t.me/HMBBSGKBOT?start=NTcyNzYxNTU0OQ==
+
+
 
 持续更新。。。。
 
