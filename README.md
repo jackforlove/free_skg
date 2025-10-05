@@ -1,5 +1,5 @@
 # free_skg
-最新优质免费社工库分享（定期更新）
+2025 最新优质免费社工库分享（定期更新）
 
 ps:
 
@@ -51,13 +51,21 @@ ps:
 
 持续更新。。。。
 
-【推荐项目】流量卡cps分销！一张卡佣金200+！轻松睡后月入5位数！
-![Image_1723090583345](https://github.com/user-attachments/assets/6605ef6a-aa7c-487e-b828-d902a36a0a92)
-![IMG_20240808_122221](https://github.com/user-attachments/assets/2a416bf2-0a4f-4cb2-adc3-c322d5bd2224)
-![688077(1)](https://github.com/user-attachments/assets/5a427fde-569e-4cb2-acab-c5a23a275b25)
 
+更多免费软件项目资源，欢迎关注:
 
-更多免费资源，互联网搞钱项目欢迎关注:
+永久地址：https://link3.cc/kegu_520
+
+资源下载地址：
+
+123云盘：https://www.123684.com/s/tO3NTd-9hZ5v
+
+迅雷云盘：https://pan.xunlei.com/s/VO_pYbQxUGQL1OOKN1HEHWNXA1?pwd=wdse# 
+
+蓝奏网盘：https://kegu.lanzoul.com/b02vr6hreb  密码:kegu
+
+雀云网盘：https://wwwv.qyshare.com/s/kegu
+
 
 免费零撸羊毛Q群:456796559
 
